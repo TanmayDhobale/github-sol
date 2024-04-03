@@ -36,4 +36,4 @@ We reply FAST on our <a target="_blank" href="https://discord.gg/GScNz7kAEu">Dis
 
 ## Stay in touch
 
-Twitter - [@marblismAI](https://twitter.com/marblismAI)
+Twitter - [@tanmayy4l](https://twitter.com/tanmayy4l)
